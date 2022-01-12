@@ -1,3 +1,3 @@
 # Milsim es vida
 
-## Necesito unos tapones para no escuchar berracos
+## Necesito unos tapones mas grandes para no escuchar berracos
